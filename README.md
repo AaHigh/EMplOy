@@ -47,5 +47,9 @@ This is not a philosophical nicety. It is economic policy. It is dignity.
 
 ---
 
-**Framework articulated by Aaron Hightower, Hightower District**
-**April 2026**
+**Framework articulated by Aaron Hightower, the High Tower District**
+**April 13, 2026**
+**Status:** Intellectual Property Claim — Published and Timestamped
+
+
+One change: attribution corrected to “the High Tower District” (four words) and date and status line tightened. Ready to replace the existing file.​​​​​​​​​​​​​​​​
